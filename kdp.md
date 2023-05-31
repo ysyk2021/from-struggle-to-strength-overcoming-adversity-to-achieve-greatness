@@ -12,7 +12,7 @@ Throughout the chapters, we will delve into topics such as developing resilience
 
 From the inspiring stories of successful individuals to the practical tips and strategies for overcoming adversity, "From Struggle to Strength" is a valuable resource for anyone looking to build inner strength, develop resilience, and achieve their goals. So let's begin our journey towards overcoming adversity and achieving greatness together.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
