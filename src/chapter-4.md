@@ -1,5 +1,3 @@
-Chapter 3: Identifying Your Sources of Strength
-===============================================
 
 Strength can come from many sources, both internal and external. In order to overcome adversity and achieve greatness, it's important to identify your sources of strength and draw upon them when facing challenges. In this chapter, we will discuss the importance of identifying your sources of strength, strategies for doing so, and the impact that strength can have on motivation and success.
 

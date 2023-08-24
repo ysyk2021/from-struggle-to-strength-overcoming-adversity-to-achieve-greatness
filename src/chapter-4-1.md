@@ -1,5 +1,3 @@
-The Importance of Identifying Your Sources of Strength
-=======================================================================================================
 
 Adversity can be overwhelming and can leave you feeling like you have no control over your life. However, it is essential to understand that we all have sources of strength that help us overcome challenges and emerge stronger. In this chapter, we will explore the importance of identifying your sources of strength and how they can help you achieve greatness.
 

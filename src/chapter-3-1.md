@@ -1,5 +1,3 @@
-Developing a Growth Mindset
-========================================================================
 
 Developing a growth mindset is key to overcoming adversity and achieving greatness. Here are some strategies for developing a growth mindset:
 

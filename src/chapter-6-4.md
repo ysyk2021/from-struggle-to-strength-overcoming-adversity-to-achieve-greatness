@@ -1,5 +1,3 @@
-Building Self-Awareness
-====================================================
 
 Embracing change is essential for overcoming adversity and achieving greatness. One key aspect of embracing change is building self-awareness. Here are some strategies for building self-awareness:
 

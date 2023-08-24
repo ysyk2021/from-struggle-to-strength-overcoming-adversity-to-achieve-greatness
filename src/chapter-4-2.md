@@ -1,5 +1,3 @@
-Strategies for Identifying Your Sources of Strength
-====================================================================================================
 
 In order to overcome adversity and achieve greatness, it is essential to identify your sources of strength. These sources can come from within yourself, as well as from external factors such as your support system and personal relationships. In this chapter, we will discuss some strategies for identifying your sources of strength.
 

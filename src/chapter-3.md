@@ -1,5 +1,3 @@
-Chapter 2: Mindset for Overcoming Adversity
-===========================================
 
 Overcoming adversity requires a mindset that is open to learning and growth. Here are some strategies for developing a mindset that can help individuals overcome adversity and achieve greatness:
 

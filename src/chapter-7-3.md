@@ -1,5 +1,3 @@
-Overcoming Burnout and Exhaustion
-============================================================================
 
 Overcoming adversity requires resilience, determination, and a willingness to learn from our experiences. However, it's important to remember that we cannot achieve greatness if we are burnt out or exhausted. Developing self-care practices is essential for sustaining our strength over the long-term and avoiding burnout.
 

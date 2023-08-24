@@ -1,5 +1,3 @@
-How to Embrace Adversity
-=======================================================
 
 Adversity is an inevitable part of life, and learning how to embrace it is essential for building resilience and achieving greatness. Here are some strategies for defining adversity and embracing it:
 

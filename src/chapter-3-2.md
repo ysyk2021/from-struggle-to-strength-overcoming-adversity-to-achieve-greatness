@@ -1,5 +1,3 @@
-Overcoming Limiting Beliefs about Adversity
-========================================================================================
 
 Overcoming adversity requires a mindset that is open to learning and growth, and that is not limited by negative beliefs or attitudes. Here are some strategies for overcoming limiting beliefs about adversity:
 

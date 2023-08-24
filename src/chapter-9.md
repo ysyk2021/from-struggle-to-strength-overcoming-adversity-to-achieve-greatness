@@ -1,5 +1,3 @@
-Chapter 8: Applying Strength to Personal and Professional Goals
-===============================================================
 
 Applying strength to personal and professional goals is key to achieving success and fulfillment. Here are some strategies for applying strength to your goals:
 

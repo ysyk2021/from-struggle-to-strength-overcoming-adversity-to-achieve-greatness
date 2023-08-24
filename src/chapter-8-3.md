@@ -1,5 +1,3 @@
-Building a Growth Mindset around Setbacks
-=========================================================================
 
 Setbacks are an inevitable part of life, and learning to navigate them is essential for building resilience and achieving greatness. Here are some strategies for building a growth mindset around setbacks:
 

@@ -1,5 +1,3 @@
-Overcoming Fear of Change
-======================================================
 
 Change is an inevitable part of life, and learning how to embrace it can be key to overcoming adversity and achieving greatness. However, fear of change can hold us back and make it difficult to move forward. In this chapter, we will discuss strategies for embracing change and overcoming fear of the unknown.
 

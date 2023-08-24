@@ -1,5 +1,3 @@
-Building Motivation
-====================================================================
 
 Motivation is essential for overcoming adversity and achieving greatness. However, it can be difficult to maintain motivation during difficult times. In this chapter, we will explore strategies for identifying sources of strength and building motivation.
 

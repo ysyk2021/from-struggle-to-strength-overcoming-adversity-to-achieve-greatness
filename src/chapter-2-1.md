@@ -1,5 +1,3 @@
-What is Adversity?
-=================================================
 
 Adversity is a term used to describe difficult or challenging circumstances that can test an individual's resilience and strength. It can take many forms, such as personal setbacks, professional challenges, financial difficulties, relationship problems, health issues, or societal injustices. Adversity can be caused by external factors, such as natural disasters or economic downturns, or internal factors, such as mental health disorders or self-doubt.
 

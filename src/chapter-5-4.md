@@ -1,5 +1,3 @@
-Building Emotional Intelligence
-===============================================================================
 
 Emotional intelligence is the ability to recognize, understand, and manage our own emotions, as well as the emotions of others. Building emotional intelligence is essential to overcoming adversity and achieving greatness. In this chapter, we will discuss some strategies for building emotional intelligence.
 

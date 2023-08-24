@@ -1,5 +1,3 @@
-Understanding the Impact of Strength
-=====================================================================================
 
 In order to overcome adversity and achieve greatness, it is important to identify your sources of strength. In this chapter, we will explore the impact that strength can have on our ability to overcome challenges, and strategies for identifying our own sources of strength.
 

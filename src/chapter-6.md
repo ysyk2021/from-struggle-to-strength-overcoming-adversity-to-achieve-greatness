@@ -1,5 +1,3 @@
-Chapter 5: Embracing Change
-===========================
 
 Change is a natural part of life, and it's something we all experience at one time or another. Whether it's a personal or professional change, embracing change can be challenging. However, by understanding the nature of change and developing strategies for embracing it, we can transform change into an opportunity for growth and achieve greatness with confidence and determination.
 

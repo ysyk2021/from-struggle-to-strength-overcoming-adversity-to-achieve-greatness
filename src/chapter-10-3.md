@@ -1,5 +1,3 @@
-Overcoming Burnout and Exhaustion
-=================================================================
 
 Overcoming adversity and achieving greatness requires sustained effort over time. However, this can also lead to burnout and exhaustion if we don't take care of ourselves along the way. In this chapter, we will discuss strategies for overcoming burnout and exhaustion and sustaining our strength and resilience over the long term.
 

@@ -1,5 +1,3 @@
-Building a Support System
-=========================================================
 
 Overcoming adversity and achieving greatness requires sustained effort over time. To maintain our strength and resilience, it's important to build a strong support system that can provide encouragement, guidance, and resources when we need them most. In this chapter, we will discuss strategies for building a support system that can help us sustain our strength and achieve our goals.
 

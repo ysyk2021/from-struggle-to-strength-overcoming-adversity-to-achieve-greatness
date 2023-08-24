@@ -1,5 +1,3 @@
-Building Self-Discipline
-===================================================================
 
 Developing self-care practices is essential for building resilience and maintaining strength in the face of adversity. One key aspect of self-care is building self-discipline, which involves cultivating habits and routines that support physical, emotional, and mental well-being. Here are some strategies for building self-discipline:
 

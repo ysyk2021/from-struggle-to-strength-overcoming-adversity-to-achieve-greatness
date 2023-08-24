@@ -1,5 +1,3 @@
-Strategies for Developing Self-Care Practices
-========================================================================================
 
 Developing self-care practices is essential for building resilience and maintaining strength in the face of adversity. In this chapter, we will explore strategies for developing self-care practices.
 

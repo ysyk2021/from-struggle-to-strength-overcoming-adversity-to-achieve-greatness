@@ -1,5 +1,3 @@
-Sustaining Strength Over the Long-Term
-======================================================================
 
 Sustaining strength over the long-term is essential for achieving personal and professional goals, and for overcoming adversity. It requires developing habits and practices that support our physical, emotional, and mental well-being.
 

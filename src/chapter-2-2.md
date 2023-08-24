@@ -1,5 +1,3 @@
-The History of Adversity
-=======================================================
 
 Adversity is a concept that has been present throughout human history. From ancient times to the present day, individuals and societies have faced a wide range of challenges and obstacles. Here are some key moments in the history of adversity:
 

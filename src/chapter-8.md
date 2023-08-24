@@ -1,5 +1,3 @@
-Chapter 7: Navigating Setbacks
-==============================
 
 Setbacks are an inevitable part of life, but how we navigate them can make all the difference. In this chapter, we will explore the nature of setbacks and strategies for navigating them effectively.
 

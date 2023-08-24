@@ -1,5 +1,3 @@
-Building a Support System
-==========================================================================================
 
 Building a support system is essential for applying strength to personal and professional goals. Here are some strategies for building a support system:
 
@@ -29,5 +27,4 @@ Be Open to Feedback and Advice
 Being open to feedback and advice is also important for building a support system. By seeking feedback and advice from others, you can gain valuable insights and perspectives that can help you overcome challenges and achieve your goals.
 
 In conclusion, building a support system is essential for applying strength to personal and professional goals. By identifying your needs, seeking out positive relationships, communicating your goals and needs, developing resilience-building habits, and being open to feedback and advice, you can build a support system that will help you achieve greatness and reach your full potential.
-
 

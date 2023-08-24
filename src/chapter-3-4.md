@@ -1,5 +1,3 @@
-The Power of Positive Thinking
-===========================================================================
 
 The way we think about adversity can have a significant impact on our ability to overcome it. A positive mindset can help us find opportunities in challenges and develop resilience in the face of setbacks. In this chapter, we will discuss the power of positive thinking when it comes to overcoming adversity.
 

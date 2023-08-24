@@ -1,5 +1,3 @@
-Chapter 9: Sustaining Strength
-==============================
 
 Maintaining strength and resilience over the long-term is essential for overcoming adversity and achieving greatness. In this chapter, we will explore strategies for sustaining strength and resilience.
 

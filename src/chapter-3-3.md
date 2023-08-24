@@ -1,5 +1,3 @@
-Strategies for Building Resilience
-===============================================================================
 
 Resilience is the ability to bounce back from adversity and overcome challenges. Developing a resilient mindset is essential for achieving greatness, as it allows us to navigate setbacks and obstacles with confidence and determination. In this chapter, we will discuss strategies for building resilience and developing a mindset for overcoming adversity.
 
