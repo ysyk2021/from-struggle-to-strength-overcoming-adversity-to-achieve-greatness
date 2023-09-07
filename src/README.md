@@ -10,3 +10,7 @@ Throughout the chapters, we will delve into topics such as developing resilience
 From the inspiring stories of successful individuals to the practical tips and strategies for overcoming adversity, "From Struggle to Strength" is a valuable resource for anyone looking to build inner strength, develop resilience, and achieve their goals. So let's begin our journey towards overcoming adversity and achieving greatness together.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
