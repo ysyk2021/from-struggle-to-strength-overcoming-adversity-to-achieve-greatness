@@ -1,5 +1,4 @@
-Chapter 10: Embracing Adversity: Turning Challenges into Opportunities
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the transformative power of embracing adversity. By shifting our perspective and mindset, we can turn challenges into opportunities for growth, resilience, and ultimately, personal greatness.
 

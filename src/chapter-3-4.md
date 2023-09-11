@@ -1,5 +1,4 @@
-Chapter 6: The Power of Positive Thinking
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the incredible power of positive thinking and its transformative impact on overcoming adversity and achieving greatness. Positive thinking is not merely wishful optimism; it is a mindset that shapes our thoughts, emotions, and actions, leading to improved resilience, problem-solving abilities, and overall well-being. By harnessing the power of positive thinking, individuals can navigate challenges with confidence and unlock their true potential.
 

@@ -1,5 +1,4 @@
-Chapter 5: Building Motivation
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the process of building motivation amidst adversity. Motivation is a powerful force that propels individuals to overcome obstacles, push through challenges, and ultimately achieve greatness. By understanding how to cultivate and sustain motivation, individuals can harness its transformative power to overcome adversity.
 

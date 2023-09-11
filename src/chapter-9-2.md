@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Applying Strength to Your Goals
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to achieve greatness and overcome adversity, it is essential to apply strength effectively to your goals. Strength serves as a driving force that propels you forward, enabling you to navigate challenges and seize opportunities. In this chapter, we will explore practical strategies that can help you leverage your inner strength and apply it to achieve your goals.
 

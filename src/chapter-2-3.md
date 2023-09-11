@@ -1,5 +1,4 @@
-Chapter 3: The Role of Adversity in Personal and Professional Success
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant role that adversity plays in shaping personal and professional success. Adversity serves as a catalyst for growth, development, and ultimately achieving greatness. Through navigating challenges and overcoming obstacles, individuals can uncover their true potential and reach new heights in both their personal and professional lives.
 

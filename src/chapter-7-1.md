@@ -1,5 +1,4 @@
-Chapter 6: The Impact of Self-Care on Overcoming Adversity
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant impact of self-care on overcoming adversity and achieving greatness. Self-care refers to the intentional actions taken to enhance one's physical, emotional, and mental well-being. When facing challenges and setbacks, individuals often neglect their own needs, prioritizing external demands over self-care. However, by recognizing the importance of self-care and implementing strategies to nurture oneself, individuals can build resilience, maintain balance, and navigate adversity more effectively.
 

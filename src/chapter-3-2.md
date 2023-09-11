@@ -1,5 +1,4 @@
-Chapter 8: Overcoming Limiting Beliefs About Adversity
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the power of overcoming limiting beliefs about adversity and how it can lead to personal growth, resilience, and ultimately achieving greatness. Limiting beliefs are the thoughts and beliefs that hold us back from reaching our full potential. By challenging and reframing these beliefs, we can transform our mindset and approach adversity with strength and determination.
 

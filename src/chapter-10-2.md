@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Maintaining Motivation and Inspiration
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various strategies for maintaining motivation and inspiration on your journey from struggle to strength. Overcoming adversity requires consistent effort and unwavering determination. By implementing these strategies, you can stay motivated, inspired, and focused on achieving greatness.
 

@@ -1,5 +1,4 @@
-Chapter 9: Understanding the Impact of Strength
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact that harnessing our strengths can have on our lives. By understanding and leveraging our inner resources, we can overcome adversity, achieve greatness, and make a positive difference in the world around us.
 

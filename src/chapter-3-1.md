@@ -1,5 +1,4 @@
-Chapter 9: Developing a Growth Mindset
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of a growth mindset and its role in overcoming challenges, embracing failures, and achieving personal growth. Developing a growth mindset is crucial for navigating adversity, fostering resilience, and unlocking your true potential. By cultivating a mindset that embraces learning, effort, and persistence, you can transform setbacks into opportunities for growth and achieve greatness.
 

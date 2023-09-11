@@ -1,5 +1,4 @@
-Chapter 4: The History of Adversity
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the history of adversity, exploring how humanity has faced and overcome challenges throughout different eras and civilizations. Examining the historical context of adversity helps us gain perspective on the resilience and strength that have shaped our collective journey towards greatness.
 

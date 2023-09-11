@@ -1,5 +1,4 @@
-Chapter 9: Overcoming Disappointment
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In your journey from struggle to strength, disappointment is an inevitable part of the process. It can be disheartening when things don't go as planned or when setbacks occur along the way. However, it is essential to develop the resilience and mindset needed to overcome disappointment and continue striving towards greatness. In this chapter, we will explore effective strategies for navigating disappointment and turning it into a catalyst for growth and success.
 

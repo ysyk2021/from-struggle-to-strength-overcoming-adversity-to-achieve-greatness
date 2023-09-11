@@ -1,5 +1,4 @@
-Chapter 8: The Role of Strength in Achieving Personal and Professional Goals
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our journey to achieve personal and professional goals, strength plays a pivotal role. It serves as the driving force that propels us forward, enables us to overcome obstacles, and empowers us to reach new heights. In this chapter, we will explore the significance of strength in achieving our aspirations and discuss strategies to cultivate and leverage it effectively.
 

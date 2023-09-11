@@ -1,5 +1,4 @@
-Chapter 9: Understanding the Nature of Setbacks
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In your journey from struggle to strength, setbacks are bound to occur. They can be unexpected, disheartening, and challenging to overcome. However, by understanding the nature of setbacks, you can navigate through them with resilience and determination, ultimately using them as stepping stones towards achieving greatness.
 

@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Obstacles and Setbacks
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of overcoming obstacles and setbacks on the path to achieving greatness. Adversity is an inevitable part of life, and individuals who possess the resilience and determination to overcome obstacles are more likely to succeed. By understanding strategies to navigate and conquer adversity, individuals can transform setbacks into stepping stones towards greatness.
 

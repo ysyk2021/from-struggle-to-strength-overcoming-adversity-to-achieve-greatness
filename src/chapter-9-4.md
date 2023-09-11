@@ -1,5 +1,4 @@
-Chapter 11: The Impact of Strength on Personal and Professional Success
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Strength plays a pivotal role in reaching personal and professional success. It encompasses not only physical strength but also mental and emotional fortitude. In this chapter, we will explore the profound impact that strength has on various aspects of our lives and how it propels us towards greatness.
 

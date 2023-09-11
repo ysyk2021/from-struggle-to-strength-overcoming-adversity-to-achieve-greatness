@@ -1,5 +1,4 @@
-Chapter 7: Building Emotional Intelligence
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of emotional intelligence and its importance in overcoming adversity and achieving greatness. Emotional intelligence involves understanding and managing our own emotions effectively and empathizing with the emotions of others. By developing emotional intelligence, we can enhance our resilience and build stronger relationships, ultimately leading to personal growth and success.
 

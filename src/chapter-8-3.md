@@ -1,5 +1,4 @@
-Chapter 9: Building a Growth Mindset Around Setbacks
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In your journey from struggle to strength, setbacks are unavoidable. They have the power to derail your progress and leave you feeling defeated. However, setbacks don't have to define your path. By cultivating a growth mindset, you can turn setbacks into opportunities for learning, growth, and ultimate success.
 

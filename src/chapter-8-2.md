@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Navigating Setbacks
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In your journey from struggle to strength, setbacks are inevitable. They can leave you feeling discouraged and unsure of how to proceed. However, setbacks are not the end; they are merely obstacles that can be overcome with the right strategies and mindset. In this chapter, we will explore effective strategies for navigating setbacks and using them as stepping stones towards greatness.
 

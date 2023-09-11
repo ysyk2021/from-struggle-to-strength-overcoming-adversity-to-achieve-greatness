@@ -1,5 +1,4 @@
-Chapter 7: The Importance of Identifying Your Sources of Strength
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of identifying your sources of strength and how they can help you overcome adversity to achieve greatness. By recognizing and leveraging your inner resources, you can tap into your resilience, determination, and unique abilities to navigate challenges and unlock your true potential.
 

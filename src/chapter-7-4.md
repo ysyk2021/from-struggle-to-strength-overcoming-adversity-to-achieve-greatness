@@ -1,5 +1,4 @@
-Chapter 9: Building Self-Discipline
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of building self-discipline and how it can empower us to overcome adversity and achieve greatness. Self-discipline is the ability to control our impulses, stay focused on our goals, and consistently take action towards them. By cultivating self-discipline, we can develop the necessary habits and mindset to navigate challenges and turn them into opportunities for growth.
 

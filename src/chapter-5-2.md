@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Overcoming Adversity
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for overcoming adversity and achieving greatness. Adversity is an inevitable part of life, but with the right approach and mindset, individuals can transform struggles into sources of strength. By implementing these strategies, individuals can navigate challenges, develop resilience, and unlock their true potential.
 

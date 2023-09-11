@@ -1,5 +1,4 @@
-Chapter 12: Sustaining Strength Over the Long-Term
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey from struggle to strength, sustaining our inner fortitude over the long-term is paramount. It is not enough to simply overcome adversity; we must also cultivate the resilience, determination, and self-care practices necessary to maintain our strength as we continue to pursue greatness. In this chapter, we will explore strategies and principles that contribute to sustaining strength throughout our lives.
 

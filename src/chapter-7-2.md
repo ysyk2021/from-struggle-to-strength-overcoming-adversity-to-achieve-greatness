@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Developing Self-Care Practices
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for developing self-care practices that promote well-being, resilience, and personal growth. Self-care is not a luxury; it is an essential aspect of maintaining physical, emotional, and mental health. By prioritizing self-care, individuals can better navigate adversity, cultivate inner strength, and achieve greatness. This chapter will provide practical tips and techniques for incorporating self-care into daily life.
 

@@ -1,5 +1,4 @@
-Chapter 3: Building Self-Awareness
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of self-awareness in overcoming adversity and achieving greatness. Building self-awareness is a fundamental step towards personal growth, as it allows us to understand ourselves on a deeper level and make conscious choices that align with our values and aspirations.
 

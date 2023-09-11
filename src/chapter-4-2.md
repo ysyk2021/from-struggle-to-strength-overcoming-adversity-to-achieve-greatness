@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Identifying Your Sources of Strength
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various strategies for identifying and harnessing your sources of strength. Understanding and leveraging these sources is essential for overcoming adversity and achieving greatness in life.
 

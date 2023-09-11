@@ -1,5 +1,4 @@
-Chapter 8: Overcoming Fear of Change
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the fear of change and how to overcome it. Change is an inevitable part of life, and our ability to embrace it can determine our success and personal growth. By understanding the underlying causes of fear and adopting strategies to navigate it, we can overcome the fear of change and embrace new opportunities.
 
